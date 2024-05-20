@@ -1,1 +1,0 @@
-# ruparaya-academy-website
